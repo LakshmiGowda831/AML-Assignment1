@@ -76,7 +76,7 @@ Final General Hypothesis:
 
 
 
-Your Name
+Lakshmi L K
 
 
 
